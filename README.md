@@ -16,4 +16,4 @@ I help brands turn complex ideas into simple, human messages that move people to
 
 ## Contact
 📧 Email: rotoelijah15@gmail.com  
-🔗 LinkedIn: https://linkedin.com/comm/mynetwork/discovery-see-all?usecase=PEOPLE_FOLLOWS&followMember=elijah-rotoluwa-a761ba363
+🔗 LinkedIn: https://www.linkedin.com/in/elijah-rotoluwa-a761ba363
